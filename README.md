@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @harrisonvaletski
+- 👋 Hi, I’m 🐦 @valetski
 - 👀 Here is a line on the plans 
-- 🌱 I’m creating content every day
+- 🌱 I’m creating content every day facebook.com/HBValetski
 - 👥️️ I’m looking to collaborate on new media and event projects
-- 📫 Reach me at harrisonvaletski.com
-
+- 📫 Reach me at https://www.harrisonvaletski.com
+- 💸 Support my latest Project https://rarible.com/valetski
 
